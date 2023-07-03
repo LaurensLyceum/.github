@@ -1,0 +1,1 @@
+# Deze organizatie is niet beheerd door het Laurens Lyceum, maar door een aantal oud leerlingen. Hier zitten geen kwade intenties achter en als u werkt voor het Laurens Lyceum en deze organizatie zou willen overnemen contacteer ons alstublieft!
